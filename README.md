@@ -1,0 +1,1 @@
+# chemistry-for-konkor
